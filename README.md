@@ -1,4 +1,4 @@
-# 💀 💀 💀
+# Sobre mim 🐸
 - Me chamo Yasmim Gonçalves :trollface:
 - tenho 15 anos :shipit:
 - Estudante do ensino médio ☢️
